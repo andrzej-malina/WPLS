@@ -1,2 +1,2 @@
 # WPLS
-Wygraj Plus Ligę - polish fantasy volleyball
+Wygraj Polską Ligę Siatkówki - polish fantasy volleyball
